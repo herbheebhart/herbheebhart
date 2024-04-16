@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @herbheebhart
-- 👀 I’m interested in coding
+- 👀 I’m interested in software development
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on IT related field
 - 📫 How to reach me ...whatapp number 09076573487, Email:abibatsalaudeen71@gmail.com
